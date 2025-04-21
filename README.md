@@ -1,3 +1,4 @@
-Nguyễn Huy Hoàng - 22810310280
-![image](https://github.com/user-attachments/assets/3d64f08f-b2e1-4602-af08-700147dad5ef)
-![image](https://github.com/user-attachments/assets/d5c2bbe7-f429-4e9b-9d17-75244e46786a)
+## Họ và tên: Hà Trọng Nhân
+## Mã sinh viên: 22810310279
+![image](https://github.com/user-attachments/assets/ddafe968-dc92-43ec-b8d7-1f3a00135590)
+![image](https://github.com/user-attachments/assets/d4c332c2-26cb-4317-aacc-04520a8647c3)
